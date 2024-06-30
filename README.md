@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ogonyokk.github.io/rsschool-cv/cv
